@@ -25,15 +25,7 @@ second
 
 niouyjn
 lol
-lol
-lol
-
-gbf
-gf
-gf
-g
-fg
-f
+lo
 gf
 g
 f

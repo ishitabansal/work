@@ -38,19 +38,3 @@ f
 gf
 g
 f
-g
-f
-
-
-fuck
-fuck 
-fuck
-
-i will fuc you
-i will fuck u up and down
-f
-f
-f
-f
-f
-f
